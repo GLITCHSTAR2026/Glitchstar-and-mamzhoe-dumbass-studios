@@ -1,2 +1,1 @@
-# Glitchstar-and-mamzhoe-dumbass-studios
-real real real real really real real
+# Its all lua.
